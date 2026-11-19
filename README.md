@@ -1,1 +1,1 @@
-https://didigenes-hash.github.io/cv
+https://didigenes-hash.github.io/cv/
